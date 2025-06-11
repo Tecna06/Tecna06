@@ -3,4 +3,4 @@
 - 🤝 Open to collaborating on new ideas, building projects, learning together,
       knowledge exchange, skill share and teamwork. 
 📫 Reach Me Instagram: [@tecna06](https://instagram.com/tecna06)
- > ⚠️ Reach me ONLY if your purpose is sharing skills and learning together. Otherwise don't rech me. THANKS
+ > ⚠️ Reach me ONLY if your purpose is sharing skills and learning together. Otherwise don't reach me. THANKS
